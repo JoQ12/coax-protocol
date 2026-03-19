@@ -19,6 +19,6 @@ Sous les conditions suivantes :
 
 Toute utilisation commerciale, partenariat ou intégration institutionnelle
 est soumise à une licence commerciale COAX.
-Contact : [votre email]
+Contact : gnansounoujoseph8@gmail.com
 
 Texte complet de la licence : https://creativecommons.org/licenses/by-nc-nd/4.0/
